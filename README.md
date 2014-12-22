@@ -35,11 +35,16 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The new starre of the north, shining vpon the victorious King of SuuedenGill, Alexander, 1597-1642.1
+GUSTAVUS ADOLPHVS KING OF THE SWEDS, GOTHS, & VANDALS, GREAT PRINCE OF FINLAND & etc.Behold the beam
 #####Body#####
-The new starre of the north, shining vpon the victorious King of SuuedenGill, Alexander, 1597-1642.1
+
+1. THE NEW STARRE
+OF THE NORTH,
+
 #####Back#####
-The new starre of the north, shining vpon the victorious King of SuuedenGill, Alexander, 1597-1642.1
+
+1. Theodahadus Rex.
+
 **Types of content**
 
   * There are 49 **verse** lines!
